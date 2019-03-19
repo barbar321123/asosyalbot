@@ -1,1 +1,3 @@
-# asosyalbot
+KODU DEĞİŞTİREN VURDURUYODUR!!!
+
+                      -Hz.Kokoreç
